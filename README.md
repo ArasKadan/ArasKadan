@@ -1,4 +1,4 @@
-![Alt text](https://tenor.com/view/but-here's-the-coder-cat-gif-12160274951477317047)
+![Alt text](https://media1.tenor.com/m/qMH5o_XizbcAAAAd/but-here%27s-the-coder.gif)
 
 # 👋 Hi, I’m @ArasKadan #
 
